@@ -1,1 +1,5 @@
+Assignment title: visual prompt phase 1.1
 
+Prompt: The way how this artwork is expressed in a form of protest is the injustice that illegal immigrants are facing in Minnesto against ice, there has been a bloody riot on many innocent immigrants including U.S. citizens and residents, they were beaten up to death and separated from their loved ones, but these immigrants always stand up toface against the injustices from ice, these immigrants are more than just outsiders they're human beings. I wouldn't say that i t would be too powerful if it came to life but i hope for anyone to see this gets motivatd to protect immigrant lives in Minnesota.
+
+Vocabulary Breakdown Represational art: This represational art can be meaningful to symbolize for no loved one gets separated from each other and they must stay together to melt this frozen hell in Minnesota. These visual elements include the pale red and monochromatic in some of the buildings and the family and some hatching for the shading, which it provokes its grounded themes and what could fate be guiding this family
