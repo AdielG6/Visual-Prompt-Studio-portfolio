@@ -1,2 +1,2 @@
-Pixel frontiers
+assignment title: Pixel frontiers
 
